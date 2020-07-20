@@ -37,4 +37,4 @@ Originally from [Paul Hollywood's Baguette Recipe](https://thegreatbritishbakeof
 16. Now, fill a container with water to pour into the hot pan put in the over earier.  Open the over, place the baking sheet inside with the baguettes running back to front, pour the hot water into the pan, and quickly shut the over to trap the steam.  The steam is most important in the first 5 minutes.
 17. Cook the baguettes for 18 minutes, turn them 180 degrees around so the other side faces the back of the oven, and cook for another 8 minutes or until they're golden brown.
 18. Turn off the oven, crack the door, and leave to cool in the oven for 10 minutes.
-19. Transfer to a rack to cool the remaining amount.
+19. Transfer to a rack to continue cooling.
